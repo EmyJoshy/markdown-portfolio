@@ -1,1 +1,13 @@
-Replace this with a list of your favorite things.
+My favorite things :
+- 😃
+- ❤️
+
+More about me :
+
+- i am a student
+- love travelling
+
+
+
+
+
